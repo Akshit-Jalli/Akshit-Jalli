@@ -12,4 +12,3 @@ I am a passionate creator and builder interested in Mechatronics
 # Connect with me:
 - 📧EMAIL: [ajj54048@gmail.com]
 - 💼 LinkedIn:[https://www.linkedin.com/in/akshit-jalli](url)
--  
